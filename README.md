@@ -1,5 +1,2 @@
-- 👋 Hi, I’m @grubhubb
-- 👀 I’m interested in grubs and hubs ;)
-- 🌱 I’m currently learning c#
-- 💞️ I’m looking to collaborate on grubbin
-- 📫 How to reach...? by sending a pigeon with ur letter and the numbers " 8800 " it will find me
+nothing special here
+discord : o2#6786
